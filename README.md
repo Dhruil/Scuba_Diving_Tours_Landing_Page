@@ -1,1 +1,1 @@
-# Scuba_Diving_Tours_Landing_Page
+# Scuba-Diving-Tours-landing-Page
